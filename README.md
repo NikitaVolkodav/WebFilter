@@ -19,3 +19,11 @@ Technology and Structures:
 - Customized Search Experience
 - Enhanced Efficiency
 - Tailored Content Control
+
+
+https://github.com/NikitaVolkodav/WebFilter/assets/110492501/b7789b0b-7162-4c5e-8d46-e288f0f67770
+
+
+
+
+
